@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mollie-Manset
+- 👀 I’m interested in true crime, RimWorld
+- 🌱 I’m currently learning how to build websites.
+- 💞️ I’m looking to collaborate on anything you think I could help you with.
+- 📫 How to reach me @mrsmanset@gmail.com
